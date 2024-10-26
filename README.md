@@ -1,3 +1,5 @@
+#PLEASE NOTE I AM MORE ACTIVE ON DISCORD! IF YOU WANT A FASTER ANSWER TRY REACHING ME IN MY THREAD IN THE LC MODDING SERVER OR ADD MY ACCOUNT generic_gmd
+
 ![Generic Moons Logo By Teserex :3](https://i.ibb.co/x27Y8MW/genmoons-banner.png)
 
 Generic Moons is a mod that adds multiple new moons for every difficulty level and then potentially later some other fun stuff. At the moment it adds 9? moons in total. All credits are located at the bottom of the page.
